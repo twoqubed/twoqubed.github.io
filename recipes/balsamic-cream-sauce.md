@@ -2,12 +2,13 @@
 
 ## Ingredients
 
-* 2 tablespoons olive oil2 tablespoons butter1/4 onion, minced
-* White Onion, Large
-* 2 tablespoons balsamic vinegar
-* 2 teaspoons chicken bouillon granules
-* 1 cup heavy cream*
-* 1/2 cup grated Parmesan cheese
+* 2 tablespoons __olive oil__
+* 2 tablespoons __butter__
+* 1/4 minced large __white onion__
+* 2 tablespoons __balsamic vinegar__
+* 2 teaspoons __chicken bouillon granules__
+* 1 cup __heavy cream__
+* 1/2 cup __grated Parmesan cheese__
 
 ## Directions
 
