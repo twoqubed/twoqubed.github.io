@@ -2,17 +2,17 @@
 
 ## Ingredients
 
-* 1 (16 ounce) package angel hair pasta
-* 1/4 cup olive oil
-* 1/2 onion, chopped White Onion, Large
-* 4 cloves garlic, minced
-* 2 cups roma (plum) tomatoes, diced
-* 2 tablespoons balsamic vinegar
-* 1 (10.75 ounce) can low-sodium chicken broth
-* Crushed red pepper to taste
-* Freshly ground black pepper to taste
-* 2 tablespoons chopped fresh basil
-* 1/4 cup grated Parmesan cheese
+* 1 (16 ounce) package __angel hair pasta__
+* 1/4 cup __olive oil__
+* 1/2 chopped large __white onion__
+* 4 cloves of minced __garlic__
+* 2 cups diced __roma tomatoes__
+* 2 tablespoons __balsamic vinegar__
+* 1 10.75 oz can __chicken broth__
+* __Crushed red pepper__ to taste
+* __Freshly ground black pepper__ to taste
+* 2 tablespoons chopped __fresh basil__
+* 1/4 cup __grated Parmesan cheese__
 
 ## Directions
 
